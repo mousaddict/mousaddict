@@ -1,0 +1,1 @@
+-Hi, I’m mouseaddict! I’m interested in Minecraft and Coding, along with cars. I’m currently learning HTML, CSS, JS and Python and I’m looking to collaborate on a website about cars. -You can contact me on my discord @mouseaddict#7561.
